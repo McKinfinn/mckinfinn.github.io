@@ -1,1 +1,0 @@
-# mckinfinn.github.io
